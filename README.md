@@ -1,4 +1,3 @@
 # nankanotesutoHook
 
-Yaaaaahhooooooo
-おおおｎ
+ぷー
